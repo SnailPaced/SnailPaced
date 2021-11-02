@@ -1,1 +1,1 @@
-Student @ Luleå Tekniska Universitet, Sweden. Master's programme in Space Engineering.
+Studying a Master's programme in Space Engineering @ Luleå Tekniska Universitet, Sweden.
